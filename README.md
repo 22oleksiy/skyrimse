@@ -7,11 +7,6 @@ Nice Try
 See [CONTRIBUTING.md](CONTRIBUTINGTTR.md) for information on how to contribute to this masterlist.
 Nice Try
 
-See [CONTRIBUTING.md](CONTRIBUTINGTTR.md) for information on how to contribute to this masterlist.
-Nice Try
-See [CONTRIBUTING.md](CONTRIBUTINGTTR.md) for information on how to contribute to this masterlist.
-Nice Try
-
 Arrested capital))))
 # About
 Abowld
